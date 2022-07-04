@@ -1,3 +1,3 @@
 # JeremySidE.github.io
 
-I don't know shit
+I know some shit now.
